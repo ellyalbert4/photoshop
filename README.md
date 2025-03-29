@@ -8,6 +8,8 @@ Adobe Photoshop is a raster graphics editor developed and published by Adobe Inc
 
 YOU CAN DOWNLOAD CRACK WITH MALWARE THAT WILL STOLE YOUR MONEY AND YOU CAN BUY COCAINE, MDMA, HEROINE ONLINE
 
+![Описание изображения](assets/123123.jpg)
+
 ### Image Editing Fundamentals
 - Non-destructive editing with adjustment layers
 - Advanced selection tools (including AI-powered selection)
